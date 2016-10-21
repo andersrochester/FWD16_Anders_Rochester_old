@@ -1,0 +1,1 @@
+Här kan ni lämna allt innehåll för tentan för denna kurs
